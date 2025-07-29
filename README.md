@@ -1,1 +1,0 @@
-# delcorrupt.github.io
